@@ -32,7 +32,7 @@ src="https://files.catbox.moe/28uesx.webp" Width="20%" />
 <div align="center">
 <img
 src="https://files.catbox.moe/fdo76r.webp" Width="50%" />
-nadi ,  mika  ,  yuti  ,  megg , timey / Eli , rosie , moony  , clover ,  crystal , Zan , kitkat  ,  ash|
+nadi  ,  yuti  ,  megg , timey / Eli , rosie , moony  , clover ,  crystal , xie kitkat  ,  ash|
 </details
 </td>
 </tr>
