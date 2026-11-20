@@ -1,5 +1,67 @@
-huss huss huss but they got no huzz huzz huzz
+<table width="50%">
+<tr>
+<td align="center" height="150">
 
+<br><br>
+
+<img
+src="https://files.catbox.moe/c5lfj8.webp" Width="20%" />
+
+' I'll love you forever '  ♡
+
+ <img
+src="https://files.catbox.moe/5ksv0h.png" Width="70%" />
+      
+</td>
+</tr>
+</table>
+
+<br>
+<div align="center">
+<img
+src="https://files.catbox.moe/46cooa.webp" Width="30%" />
+
+<br><br>
+<table width="70%">
+<tr>
+<td align="center" height="30">
+<details>
+<summary>oomfs</summary>
+<div align="center">
+<img
+src="https://files.catbox.moe/fdo76r.webp" Width="50%" />
+nadi ,  mika  ,  yuti  ,  megg , timey / Eli , rosie , moony  , clover ,  crystal , Zan , kitkat  ,  ash|
+</details
+</td>
+</tr>
+</table>
+
+<table width="70%">
+<tr>
+<td align="center" height="30">
+<details>
+<summary>hvy/kins & fictkins</summary>
+  <div align="center">
+<img
+src="https://files.catbox.moe/fdo76r.webp" Width="50%" />
+     ' I genuinely autoblock someone who has the same fictkin , heavy kin | feels uncomfortable somehow. 
+
+
+Fictkin 
+| Pierrot | Monika |
+
+
+Heavy Kin 
+|  arin , | apple white ,  Denji , tamaki suoh ,  Ai Hoshino . |
+
+
+Kin 
+| Lloyd , white lily cookie , ragatha  ,  rainbow dash |
+</details
+</td>
+</tr>
+</table>
+ 
 <!--
 **fkxxu/fkxxu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
