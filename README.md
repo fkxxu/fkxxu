@@ -19,8 +19,9 @@ src="https://files.catbox.moe/5ksv0h.png" Width="70%" />
 <br>
 <div align="center">
 <img
-src="https://files.catbox.moe/46cooa.webp" Width="30%" />
-
+src="https://files.catbox.moe/28uesx.webp" Width="20%" />
+ <div align="center">
+ 
 <br><br>
 <table width="70%">
 <tr>
