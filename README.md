@@ -50,11 +50,11 @@ src="https://files.catbox.moe/fdo76r.webp" Width="50%" />
 
      
 Fictkin 
-| Pierrot | Monika |
+| Pierrot |
 
 
 Heavy Kin 
-|  arin , | apple white ,  Denji , tamaki suoh ,  Ai Hoshino . |
+|  arin , | apple white ,  Denji , tamaki suoh ,  Ai Hoshino  , Monika . |
 
 
 Kin 
