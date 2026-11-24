@@ -46,9 +46,9 @@ nadi  ,  yuti  ,  megg , timey / Eli , rosie , moony  , clover ,  crystal , xie 
   <div align="center">
 <img
 src="https://files.catbox.moe/fdo76r.webp" Width="50%" />
-     ' I genuinely autoblock someone who has the same fictkin , heavy kin |[  feels uncomfortable somehow. ]
+     ' just in case
 
-
+     
 Fictkin 
 | Pierrot | Monika |
 
